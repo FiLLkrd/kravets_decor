@@ -1,1 +1,0 @@
-# kravets_decor
